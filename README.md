@@ -1,2 +1,2 @@
-# TA05-GXX-PeralesEduardo-GarciaAlex-ASIXc1C
+# TA05-GXX-PeralesEduardo
 Portafolio
